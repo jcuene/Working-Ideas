@@ -3,4 +3,6 @@ Sites
 
 Sites to check out
 
-Sites are important to read
+Funny sites are important to read when there is good news. 
+
+
